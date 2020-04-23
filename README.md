@@ -1,2 +1,2 @@
 # goodatwritingstory
-Aadhitya's blogs.
+This is my 1st story. 
